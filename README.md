@@ -8,4 +8,4 @@ WILIAN PAIVA De AQUINO
 - 💬 Reactjs Libraries | jquery
 - 📫 linkedin.com/in/wilian-paiva-de-aquino-141538146
 - 📩 wilianpaiva11@gmail.com
-- ⚡ watt: (038)997406960
+- ⚡ watzap: (038)997406960
